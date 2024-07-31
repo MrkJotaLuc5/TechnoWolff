@@ -12,4 +12,4 @@ wolfftechno@gmail.com
 
 @kauan.1820
 
-[![]](https://tenor.com/pt-BR/view/mujikcboro-seriymujik-gif-24361533)
+(https://tenor.com/pt-BR/view/mujikcboro-seriymujik-gif-24361533)
